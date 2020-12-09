@@ -1,0 +1,1 @@
+# mintic_sem1
